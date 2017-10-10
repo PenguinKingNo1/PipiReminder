@@ -14,6 +14,8 @@ https://github.com/PenguinKingNo1/PipiReminder/blob/master/Struct-171002.png
 
 
 Dynamics
+Poor UI Design:)
+https://github.com/PenguinKingNo1/PipiReminder/blob/master/yLvnEV---Wireframe-cc-Premium.pdf
 
 
 Visual
